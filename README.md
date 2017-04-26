@@ -1,0 +1,2 @@
+# estudio
+informacion de estudio
